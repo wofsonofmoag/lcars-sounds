@@ -12,3 +12,11 @@ https://www.thelcars.com/
 https://www.tomshardware.com/news/raspberry-pi-star-trek-lcars-system
 
 http://www.lcars.org.uk/
+
+https://www.youtube.com/watch?v=hbg-QgKOdac
+
+https://www.youtube.com/watch?v=Y_4iAWobejY
+
+https://www.youtube.com/watch?v=zIFqK8DvOm4
+
+https://www.youtube.com/watch?v=DiPXuo753i8
